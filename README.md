@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://imgur.com/4f5KVNU.png"width="500px">
+<img src="https://imgur.com/4f5KVNU.png"width="400px">
 <br><br><b>♡ milo</b> <img src="https://imgur.com/FK6OOrC.png" height="18px"> (<a href="https://en.pronouns.page/@GUNSLINGERZ">✮</a>) <img src="https://imgur.com/iErU70c.png" height="18px"> he/him ♡</a><br><br>
   <img src="https://imgur.com/kxVonET.png" width="700px">
   <br><br><b>♡ i go on pt to read/draw/people watch, so im offtab often, shoot me a whisp!</b>
