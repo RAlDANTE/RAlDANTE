@@ -6,6 +6,6 @@
   <br>i'm quiet at first meet ! once comfortable i am quite hyper & talkative though.
   <br>inspo/copies are fine ! do what you like, i don't mind.</a><br><br>
    <img src="https://i.imgur.com/Nk8YzNv.gif" width="40px"></a><br><br>
-  ♡ C+H is encouraged! i am completely fine with just about anyone ! .</b>
+  ♡ C+H is encouraged! i am completely fine with just about anyone ! ♡</b>
   <br>i hide/mute a lot of people, generally just strip club spam & annoying folk.<br><br><b>
    <img src="https://imgur.com/kxVonET.png" width="700px">
